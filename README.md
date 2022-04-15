@@ -1,2 +1,2 @@
 # SmokeAIO
-smoking every site.. lol &lt;3
+man this shi too easy
